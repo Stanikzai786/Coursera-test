@@ -1,2 +1,2 @@
 # Coursera-test
-print ("suck my winer omer")
+#omer suck dicks for 20$ Disscount 
